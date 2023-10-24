@@ -3,5 +3,5 @@
 - 🌱 I’m currently learning Python
 
 
-I am a 17 year old boy who is approaching the world of Cyber ​​Security for a couple of months.  
+I am a 18 year old boy who is approaching the world of Cyber ​​Security for a couple of months.  
 I hope to be able to learn as much as possible and collaborate with many people.
